@@ -30,3 +30,15 @@ j'aime le travail d'equipe pour :
     * Apprendre à gerer les conflits et les differences (savoir s'adapter)
 
 j'utilise rarement de gifs donc je n'ai pas de preferences particulieres
+
+
+
+
+
+
+
+
+
+
+
+Au revoir
